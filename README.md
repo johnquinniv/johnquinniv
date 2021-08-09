@@ -1,5 +1,5 @@
 - 👋 Hi, I’m John Quinn
-- 👀 I’m interested in ENM
+- 👀 I’m interested in landscape conservation
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
